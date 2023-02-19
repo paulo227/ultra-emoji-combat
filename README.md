@@ -1,0 +1,1 @@
+# Lutas entre emojis
